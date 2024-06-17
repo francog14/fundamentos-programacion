@@ -1,1 +1,1 @@
-"yo tengo un noctulo.....un noctulo es un murcielago chico que vive en el desvan de mi casa....no nos vemos nunca los 2 trabajamos de noche........ah?"
+"yo tengo un noctulo.....un noctulo es un murcielago chico que vive en el desvan de mi casa...."
